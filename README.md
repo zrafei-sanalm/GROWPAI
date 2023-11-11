@@ -1,0 +1,4 @@
+# GROWPAİ🌟
+# 1 DOWNLOAD
+# 2 UNZİP İT
+# 3 AND HAVE FUN!
